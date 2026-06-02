@@ -1,0 +1,1 @@
+Buy credits for OpenAI and Claude = $10
